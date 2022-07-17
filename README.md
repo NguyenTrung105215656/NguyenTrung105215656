@@ -10,7 +10,7 @@ Thank you for taking the time to read my bio.
 * ✨ FavouriteLanguage: JavaScript, CSS
 * 📝 Language: EN, VIE
 * ⛄️ Gender: Male [he/him]
-* 🌏 Location: Vietnamese, USA
+* 🌏 Location: Vietnamese, United States
 * 🌠 Irrelevant: Photographer, Editor, Traveling + Eating,... 🤟
 
 ## 💡 Contact Me 📞
