@@ -11,6 +11,7 @@ Thank you for taking the time to read my bio.
 * 📝 Language: EN, VIE
 * ⛄️ Gender: Male [he/him]
 * 🌏 Location: Vietnamese
+* 📸 Irrelevant Photographer, Editor, traveling
 
 ## 💡 Contact Me 📞
 
